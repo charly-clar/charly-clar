@@ -1,7 +1,7 @@
 Hi 👋 My name is Charly Clar
 ============================
 
-Web Developer • Blockchain • UI UX Designer
+Web Developer • Blockchain • Web Designer
 -----------------------------------------------
 
 👨🏻‍💻 In five years I have developed and designed web applications, showcase websites, admin panel, e-commerce, as well as decentralized applications (smart contract, minting website, cryptocurrency, DeFi exchange platform, NFT marketplace, DAO etc...) 💪 I have been passionate for years about hardware setup, overclocking and now decentralized finance, web 3.0, mining setup and cryptocurrency staking. I will be able to advise you on your investment and decentralized savings projects. ⚠️Sensitive to design and ergonomics, I can accompany you during the design of your future application whether it is for mobile, tablet or desktop. My experience in team development, my motivation, and my desire to work make me a versatile, serious and involved member in his work. 👉Here are several links to see all my projects: linktr.ee/Charly.Clar Contact me, I would be happy to exchange with you via skype, whatsapp, email or over a good coffee. 😄
